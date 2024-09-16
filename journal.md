@@ -6,3 +6,6 @@ This an example entery
 
 _Reflecting on Our github Journel Process_
 
+# September 9, 2024
+
+# September 12, 2024
