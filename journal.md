@@ -55,3 +55,6 @@ I liked struggling with project stem, it was fun but at the same time it made me
 
 # January 13, 2025
 As AI becomes more integral across industires, new roles emerge, from AI specialists and machine learning engineers to data scientists, ethicits, and AI intergration experts. Workers who can harness AI tools effectively will be high in demand. Although AI may make some traditional tech roles obsolete, especially in areas that can be fully automated. For example, roles in basic coding, testing, or IT maintenance could be affected. The workers in these roles may face challenges transitioning to new areas. Soft skills can be a form of preperation though. In an AI-Driven world, human-centerd skills like commuinication, leadership, and emotional intelligence will become more critical. These skills cannot be easily replicated by machines and will be complement technical expertise. 
+
+# January 15, 2025
+Watched Moneyball Movie .
