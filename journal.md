@@ -58,3 +58,6 @@ As AI becomes more integral across industires, new roles emerge, from AI special
 
 # January 15, 2025
 Watched Moneyball Movie .
+
+# January 22, 2025 
+Government intervention affects technology heavily on the idea of freedom of speech and how far the imagination can expand. The idea of freedom of speech is usally expressed throughout social media as it's a platform to alert others of any ideas or news given such as the way FOX 7 utilizes social media to advertise articles containing info, or even normal citzens that record things or post pictures of things/situations they encontored. Plus alot of social media covers personal oppion which is free speech. While technology itself can be manipulated into any type of tool such as communication devices which alternates how free we are with out communication of skill ussage of technology. They could heavily make state that Tik tok is no were near in forms of association of Communist china as said, plus sell some of the stocks to the united states so it will be secured and America can gain trust.
