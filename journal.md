@@ -76,3 +76,6 @@ Over spring break I heavliy used my TV, computer, and my phone for commuication,
 
 # March 24, 2025
 My biggest view on AI having a huge impact on March madness is on how it will affect betting. When it comes to AI its biggest strength is Satastics and numbers, this is a huge advantage to betters but it also brings them down as other beters will also take advantage. The AI will show who is more prone to earning a higer score or such point a stistic, telling beters on who to pick on apps such as prize picks. without an opposing person to bet on other players it would be hard to actually earn money from the betting, but at the same time it's mainly based on satisitcs and getting lucky, the consequence might not even come out the same way the computer or AI says it will.
+
+# March 31, 2025
+I am insanely stressed with school and I want to get out as soon as possible. I'm a senior and life is going to commence once I graduate and thats scary. My classes are killing with constant assignments and the idea of me having to take AP tests is  anoyying me, I hope I can get the AP cord as I only have two cords which im suprrised I got as I did not believe I would get a single cord since I don't do anything academically. 
