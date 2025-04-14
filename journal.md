@@ -79,3 +79,6 @@ My biggest view on AI having a huge impact on March madness is on how it will af
 
 # March 31, 2025
 I am insanely stressed with school and I want to get out as soon as possible. I'm a senior and life is going to commence once I graduate and thats scary. My classes are killing with constant assignments and the idea of me having to take AP tests is  anoyying me, I hope I can get the AP cord as I only have two cords which im suprrised I got as I did not believe I would get a single cord since I don't do anything academically. 
+
+# April 7, 2025
+AI helps me study by memorizing the way I have logged my information of the things I learned in class. Ai can give me solutions on how to solve problems and give me more addtitonal and indepth information when it comes to studying what im learning.
